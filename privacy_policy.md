@@ -1,7 +1,6 @@
 # Privacy Policy | 개인정보처리방침
 
-_최종 업데이트: 2025년 3월 25일_
-_Last updated: March 25, 2025_
+_최종 업데이트: 2025년 3월 25일_ (_Last updated: March 25, 2025_)
 
 ---
 
